@@ -15,3 +15,6 @@ tiktok
 ![god_not_safe_you](https://github.com/THEE9CYPTED/Forest.apk/blob/main/pic/IMG_20261006_154243.png)
 
 ![no_way_escape](https://github.com/THEE9CYPTED/Forest.apk/blob/main/pic/%E0%B9%84%E0%B8%A1%E0%B9%88%E0%B8%A1%E0%B8%B5%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%208_20261011104748.png) 
+
+## link these files 
+[link](https://www.mediafire.com/file/k4liwixztys6mi9/happy_in_hell.zip/file)
